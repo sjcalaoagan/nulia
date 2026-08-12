@@ -1,0 +1,1 @@
+Rumis are people who practice [[Ruminity]]. While [[Ruminite]] can be used by any citizen regardless of license for daily-life, one needs a license to operate any Ruminity weapons. Failure to provide license when asked by a lawkeeper may subject the offender to punishment depending on their state.

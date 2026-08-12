@@ -1,0 +1,1 @@
+Alchemy is a branch of [[Ruminity]] that focuses on transformation and potion-making. The process of alchemy relies on precision and control of energy produced by square-shaped [[Ruminite]].
